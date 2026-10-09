@@ -5,4 +5,4 @@
 ##### <p align="center"> he him she her pronouns no they them!
 ##### <p align="center"> cyberpunk , outlast & taboo kinks and fetishes r my special interests
 ##### <p align="center"> sign my ata if you love me
-##### <p align="center"> -15 dni
+##### <p align="center"> -18 dni
